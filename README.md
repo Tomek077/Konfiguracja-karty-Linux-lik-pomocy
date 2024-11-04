@@ -1,0 +1,1 @@
+# Konfiguracja-karty-Linux-lik-pomocy
